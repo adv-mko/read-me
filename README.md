@@ -9,4 +9,5 @@
 Other interests:
 - Organic Chemistry
 - Japanese
+- Museums
 - Learning new stuff!
